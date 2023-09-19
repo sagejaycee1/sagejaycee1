@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sagejaycee1
+- 👀 I’m interested in making games 
+- 🌱 I’m currently learning HTML
+- 💞️ I’m looking to collaborate on any thing :)
+- 📫 How to reach me discord 
